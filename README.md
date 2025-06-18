@@ -14,4 +14,4 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤOGMYGOD I LOVE ITHANORT SO MUCHHHHH
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://64.media.tumblr.com/bb77087bfa01fa356b32bfbfc4c69821/1c68467712830548-a4/s100x200/3148ae98273b3a7152c39da722253da118033023.pnj) ![me](https://64.media.tumblr.com/8adccbbcbb3d78b86b5724b1644abd03/a6596c79b426fdf9-bc/s100x200/3eb240e9460c9a5f4a1aa23f4b59bc41deddece8.gifv)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://64.media.tumblr.com/bb77087bfa01fa356b32bfbfc4c69821/1c68467712830548-a4/s100x200/3148ae98273b3a7152c39da722253da118033023.pnj) ![me](https://64.media.tumblr.com/8adccbbcbb3d78b86b5724b1644abd03/a6596c79b426fdf9-bc/s100x200/3eb240e9460c9a5f4a1aa23f4b59bc41deddece8.gifv)
