@@ -6,7 +6,7 @@
 ㅤㅤJP/ENG
 
 ㅤㅤㅤㅤ´ཀ` Irl Vampire  ㅤㅤㅤㅤܓܮ ㅤㅤㅤㅤㅤㅤㅤㅤI allow anyone to C+H! No need to ask. 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✘ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![me](https://64.media.tumblr.com/e4a30f0ab092edba18af0e881335e028/a9ddffc3320c07ad-27/s100x200/c44d1849b51b1f55405a381567e7fc62edac2bae.gifv)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✘ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![me](https://64.media.tumblr.com/e4a30f0ab092edba18af0e881335e028/a9ddffc3320c07ad-27/s100x200/c44d1849b51b1f55405a381567e7fc62edac2bae.gifv)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI'm socially awkward - If i don't sound enthusiastic, It's not your fault. 
 
 
