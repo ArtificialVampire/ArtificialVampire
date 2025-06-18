@@ -1,5 +1,5 @@
 # hello!?
-![image](https://64.media.tumblr.com/d5ff6d185e7dbe7024416c30714c09d7/f1f3a479e2bbaa13-84/s1280x1920/89d9291364424e22220bc406e0dd6172a4e8c9e3.pnj)
+![image](https://64.media.tumblr.com/62df977724c011f8ee51a1b4846e5440/f1f3a479e2bbaa13-84/s1280x1920/44d6493e0055f36c701c0b99d33aeda9a17ffd55.pnj)
 ㅤㅤㅤㅤㅤㅤㅤㅤﾞㅤ๑ <I><B> vin / nyx <B><I> ◡ ㅤㅤㅤㅤㅤㅤ<I>I<I>NFP ㅤㅤHE : HIM
 ㅤㅤㅤㅤㅤㅤㅤㅤ![me](https://64.media.tumblr.com/ad608ffd659ecb45b904298d16278635/a6596c79b426fdf9-5b/s250x400/3d7b08cc1d31c27a358057a6ea65bee78e791e48.gifv)
 ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
