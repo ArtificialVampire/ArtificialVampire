@@ -5,9 +5,9 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤJP/ENG
 
-ㅤㅤㅤㅤ´ཀ` Irl Vampire  ㅤㅤㅤㅤܓܮ ㅤㅤㅤㅤㅤㅤㅤㅤI allow anyone to C+H! No need to ask. 
+ㅤㅤㅤㅤ´ཀ` Irl Vampire  ㅤㅤㅤㅤܓܮ ㅤㅤㅤㅤㅤㅤㅤㅤC + H is always welcome, No need to ask. 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✘ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![me](https://64.media.tumblr.com/e4a30f0ab092edba18af0e881335e028/a9ddffc3320c07ad-27/s100x200/c44d1849b51b1f55405a381567e7fc62edac2bae.gifv)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI'm socially awkward - If I don't sound enthusiastic, I apologize!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤI'm socially awkward - If I don't sound enthusiastic, I apologize. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ( I'M FUNNY I PROMISE GUYS ) 
 
 
 
