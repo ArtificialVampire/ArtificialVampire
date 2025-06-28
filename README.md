@@ -1,17 +1,20 @@
-# ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhello!?
-![image](https://64.media.tumblr.com/62df977724c011f8ee51a1b4846e5440/f1f3a479e2bbaa13-84/s1280x1920/44d6493e0055f36c701c0b99d33aeda9a17ffd55.pnj)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤﾞㅤ๑ <I><B> vin / nyx <B><I> ◡ ㅤㅤㅤㅤㅤㅤ<I>I<I>NFP ㅤㅤHE : HIM
-ㅤㅤㅤㅤㅤㅤㅤㅤ![me](https://64.media.tumblr.com/ad608ffd659ecb45b904298d16278635/a6596c79b426fdf9-5b/s250x400/3d7b08cc1d31c27a358057a6ea65bee78e791e48.gifv)
-ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤJP/ENG
+# ㅤㅤㅤㅤㅤㅤㅤ <I>𝐀𝐥𝐥 𝐨𝐟 𝐭𝐡𝐢𝐬. . 𝐈 𝐥𝐞𝐚𝐫𝐧𝐞𝐝 𝐟𝐫𝐨𝐦 𝐲𝐨𝐮.
+ㅤㅤㅤㅤㅤ ㅤㅤ![image](https://github.com/user-attachments/assets/43e7eb24-d375-47ae-8ac8-118ec8b6b015)
 
-ㅤㅤㅤㅤ´ཀ` Irl Vampire  ㅤㅤㅤㅤܓܮ ㅤㅤㅤㅤㅤㅤㅤㅤC + H is always welcome, No need to ask. 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✘ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![me](https://64.media.tumblr.com/e4a30f0ab092edba18af0e881335e028/a9ddffc3320c07ad-27/s100x200/c44d1849b51b1f55405a381567e7fc62edac2bae.gifv)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤI'm socially awkward - If I don't sound enthusiastic, I apologize. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ( I'M FUNNY I PROMISE GUYS ) 
+ㅤㅤㅤㅤㅤ୧‿  Vin / Nyx  ㅤㅤ𓏵ㅤㅤ´ ˘ ` ｡ 𓈒
+ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ<I> INFP : HE : HIM<I>ㅤ𓏵ㅤㅤㅤㅤㅤ𓏲 ︵ .  ㅤㅤㅤㅤㅤ๑ㅤㅤㅤㅤ ❛ 𝚂𝚝𝚘𝚙 𝚙𝚛𝚎𝚝𝚎𝚗𝚍𝚒𝚗𝚐 𝚝𝚘 𝚋𝚎 𝚁𝚒𝚐𝚑𝚝𝚎𝚘𝚞𝚜𓈒 𑐉 
+ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ<B> JP/ENG<B>  ㅤ𓏵 ㅤㅤㅤㅤㅤㅤㅤ◡◡ㅤㅤㅤㅤㅤ◟ ͜ㅤ 𓈒 — 𝙽𝚎𝚒𝚝𝚑𝚎𝚛 𝚈𝚘𝚞 𝚗𝚘𝚛 𝙸, 𝙳𝚎𝚜𝚎𝚛𝚟𝚎 𝚝𝚘 𝚋𝚎 𝚂𝚊𝚟𝚎𝚍.𓈒 ❜ 𓂅 ୭ ˚ 
+ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤ ㅤㅤㅤ ㅤㅤ ㅤㅤㅤ  ㅤㅤ
 
 
+ㅤㅤㅤㅤㅤㅤㅤ ୧ ੭ㅤㅤㅤㅤ𐔌ㅤ![me](https://64.media.tumblr.com/3e99fec09b177fd7ae99095ef3e8ce58/a21613f2eb57a647-49/s75x75_c1/65ddd00ac471c961e865d2af5da7b96cfbf4d8ec.gifv) °  ° ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤ<B>´ཀ` Irl Vampire <B> ㅤㅤㅤㅤ𓂃  ㅤㅤ.ᐟㅤㅤㅤㅤㅤ࿔ㅤㅤㅤ𓈒 𓈒 𓈒ㅤㅤㅤC + H is always welcome, No need to ask. 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI'm socially awkward - ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤWhich leads to me being SV / Unresponsive, ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI apologize for that ^_^
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤOGMYGOD I LOVE ITHANORT SO MUCHHHHH
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<B>ㅤMe and my nonexistent Ithaqua partner awww
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://64.media.tumblr.com/bb77087bfa01fa356b32bfbfc4c69821/1c68467712830548-a4/s100x200/3148ae98273b3a7152c39da722253da118033023.pnj) ![me](https://64.media.tumblr.com/8adccbbcbb3d78b86b5724b1644abd03/a6596c79b426fdf9-bc/s100x200/3eb240e9460c9a5f4a1aa23f4b59bc41deddece8.gifv)
