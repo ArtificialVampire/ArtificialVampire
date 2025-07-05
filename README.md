@@ -1,3 +1,4 @@
-![image](https://github.com/user-attachments/assets/a4f2e91f-93c7-4213-974e-c36420ca2589)
-
+![image](https://github.com/user-attachments/assets/a4f2e91f-93c7-4213-974e-c36420ca2589)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+## me if you even careㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![me](https://64.media.tumblr.com/b55ecfd5aedb3ba974612be4e37c958f/d575669a8f3d2539-40/s400x600/c0f83cab5d1a95e6eadeee5e5354839efb209494.pnj)
 
