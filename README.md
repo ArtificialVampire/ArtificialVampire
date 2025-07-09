@@ -1,3 +1,9 @@
+![image](https://github.com/user-attachments/assets/eeff8488-d4f1-4169-9a0a-52aa052f6ad5)
+
+
+## wtf is a gende r
+
+
 ![image](https://github.com/user-attachments/assets/a4f2e91f-93c7-4213-974e-c36420ca2589)ㅤㅤ![image](https://github.com/user-attachments/assets/62e0b040-2c64-4803-8cc2-03a40294c9ce)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ## me if you even careㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
