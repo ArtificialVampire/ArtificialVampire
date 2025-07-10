@@ -1,6 +1,7 @@
-![image](https://github.com/user-attachments/assets/eeff8488-d4f1-4169-9a0a-52aa052f6ad5)
-
-
+![image](https://github.com/user-attachments/assets/eeff8488-d4f1-4169-9a0a-52aa052f6ad5) 
+                                                                        __𓇼 _VIN ᴗᴗ HE / HIM_ 𓂃 𓈒𓏸__                          
+               ◟♯ . <B>INFP<B> ﹕𖦹 W2I !    𓆝 𓆟 𓆞 𓆝 𓆟                              ୭ ˚ .. timid, please be patient with me ! ᵕ—ᴗ—
+ ( dawg ts why im friendless ;-;; )
 ## wtf is a gende r
 
 
