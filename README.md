@@ -11,7 +11,7 @@
 ![blinkiesCafe-u5](https://github.com/user-attachments/assets/acf074e1-1ee0-4a7a-9869-6b165ec01422)
 ![blinkiesCafe-El](https://github.com/user-attachments/assets/579c8409-d482-4e4a-a842-152be9c01293)                                                 ![blinkiesCafe-IS](https://github.com/user-attachments/assets/1d8d2e1a-70aa-4c5b-ba90-79fd6930d17d) ![blinkiesCafe-1F](https://github.com/user-attachments/assets/a16d8471-a693-4fee-ab60-842615b5de14)         ![blinkiesCafe-Lv](https://github.com/user-attachments/assets/9a96596d-f8e6-467d-9a4c-314e54ad765b)                                                 ![blinkiesCafe-VV](https://github.com/user-attachments/assets/73a334cb-a440-4ff2-b9ed-9d774f3cfdbc) ![blinkiesCafe-mS](https://github.com/user-attachments/assets/371d11db-5e8e-4530-b3b6-d8baeb4d77ce) ![blinkiesCafe-MP](https://github.com/user-attachments/assets/c6dc9bea-cf81-4ede-b3c0-c62876de5d79)
 
-![me](https://64.media.tumblr.com/bb77087bfa01fa356b32bfbfc4c69821/1c68467712830548-a4/s100x200/3148ae98273b3a7152c39da722253da118033023.pnj)   ᰔ   ![me](https://64.media.tumblr.com/8adccbbcbb3d78b86b5724b1644abd03/a6596c79b426fdf9-bc/s100x200/3eb240e9460c9a5f4a1aa23f4b59bc41deddece8.gifv)
+![me](https://64.media.tumblr.com/bb77087bfa01fa356b32bfbfc4c69821/1c68467712830548-a4/s100x200/3148ae98273b3a7152c39da722253da118033023.pnj)   ᰔ   ![me](https://64.media.tumblr.com/1f448fd306c78978a4ce8402fee82bc9/a9ddffc3320c07ad-03/s100x200/21a894b3c61a723b9d0b1c9e3b0bf39f778de922.pnj)
 
 
 
