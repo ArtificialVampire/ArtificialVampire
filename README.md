@@ -7,3 +7,4 @@ dni list:
 3. @MORIMENS
 4. @FaithAmetyst
 5. @Yaoispit
+6. @crimesyndicates
