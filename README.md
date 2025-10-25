@@ -8,3 +8,4 @@ dni list:
 4. @FaithAmetyst
 5. @Yaoispit
 6. @crimesyndicates
+7. @yi-hyuk
