@@ -13,9 +13,11 @@ dni list:
 4. @FaithAmetyst
 5. @crimesyndicates
 6. @yi-hyuk
+7. $\textcolor{hsl(0,100%,50%)}{\textsf{𝒮𝒽𝑒𝓇𝒾𝒻𝒻}}$
 
-^^^
-(these people are so awesome sauce i lovvv u guys so mach/p（˶˃ ᵕ ˂˶） )
+
+
+^^^(these people are so awesome sauce)
 
 
 (( SN: hey guys lets tone down the NSFW jokes about me haha it makes me uncomfy alot but i wont tell you guys to stop, just keep it limited. thanks
