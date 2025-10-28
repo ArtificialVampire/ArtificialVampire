@@ -2,7 +2,8 @@
 
 
 
-<img width="550" height="350" alt="image" src="https://github.com/user-attachments/assets/1035bc15-64f4-4fd8-aff9-b851968fa41e" />
+<img width="550" height="350" alt="image" src="https://github.com/user-attachments/assets/6a5325b2-4de6-4771-ab96-63a35458c6aa" />
+
 
 
 dni list: 
