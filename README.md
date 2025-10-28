@@ -1,8 +1,12 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=5a0c02&label=SUN+EATERS)
 
 
+<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/915d61aa-8574-4a15-b4ec-a2577082d1a8" />
 
-<img width="550" height="350" alt="image" src="https://github.com/user-attachments/assets/6a5325b2-4de6-4771-ab96-63a35458c6aa" />
+
+
+
+<img width="350" height="250" alt="image" src="https://github.com/user-attachments/assets/6a5325b2-4de6-4771-ab96-63a35458c6aa" />
 
 
 
