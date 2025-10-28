@@ -11,6 +11,11 @@ dni list:
 2. @bIickys
 3. @MORIMENS
 4. @FaithAmetyst
-5. @Yaoispit
-6. @crimesyndicates
-7. @yi-hyuk
+5. @crimesyndicates
+6. @yi-hyuk
+
+^^^
+(these people are so awesome sauce i lovvv u guys so mach/p（˶˃ ᵕ ˂˶） )
+
+
+(( SN: hey guys lets tone down the NSFW jokes about me haha it makes me uncomfy alot but i wont tell you guys to stop, just keep it limited. thanks
