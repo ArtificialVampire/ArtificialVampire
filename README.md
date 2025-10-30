@@ -1,12 +1,15 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=5a0c02&label=SUN+EATERS)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=e79385&label=NINJAS)
 
 
-<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/915d61aa-8574-4a15-b4ec-a2577082d1a8" />
+<img width="250" height="782" alt="image" src="https://github.com/user-attachments/assets/af0e54ac-9b52-4954-864c-5610897bbbf8" />
+
+
+<img width="450" height="350" alt="image" src="https://github.com/user-attachments/assets/7e6f32b6-37f4-4878-b9d3-eec4e2f4a485" />
 
 
 
+<img width="350" height="250" alt="image" src="https://github.com/user-attachments/assets/07b93e82-5782-4765-9042-d2642d11e0b5" />
 
-<img width="350" height="250" alt="image" src="https://github.com/user-attachments/assets/6a5325b2-4de6-4771-ab96-63a35458c6aa" />
 
 
 
