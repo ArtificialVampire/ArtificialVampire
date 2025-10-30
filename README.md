@@ -4,7 +4,7 @@
 <img width="250" height="782" alt="image" src="https://github.com/user-attachments/assets/af0e54ac-9b52-4954-864c-5610897bbbf8" />
 
 
-<img width="450" height="350" alt="image" src="https://github.com/user-attachments/assets/7e6f32b6-37f4-4878-b9d3-eec4e2f4a485" />
+<img width="250" height="350" alt="image" src="https://github.com/user-attachments/assets/7e6f32b6-37f4-4878-b9d3-eec4e2f4a485" />
 
 
 
@@ -14,7 +14,7 @@
 
 
 dni list: 
-1. @ivangaze
+1. @ $\textsf{{\color[rgb]{0.0, 0.0, 0.0}I}{\color[rgb]{0.1, 0.0, 0.0}v}{\color[rgb]{0.12, 0.0, 0.0}a}{\color[rgb]{0.22, 0.0, 0.0}n}{\color[rgb]{0.33, 0.0, 0.0}g}{\color[rgb]{0.4, 0.0, 0.0}a}{\color[rgb]{0.5, 0.0, 0.0}z}{\color[rgb]{0.6, 0.0, 0.0}e}}$
 2. @bIickys
 3. @MORIMENS
 4. @FaithAmetyst
