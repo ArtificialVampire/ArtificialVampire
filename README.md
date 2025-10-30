@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=e79385&label=NINJAS)
 
 
-<img width="250" height="782" alt="image" src="https://github.com/user-attachments/assets/af0e54ac-9b52-4954-864c-5610897bbbf8" />
+<img width="250" height="150" alt="image" src="https://github.com/user-attachments/assets/af0e54ac-9b52-4954-864c-5610897bbbf8" />
 
 
 <img width="250" height="350" alt="image" src="https://github.com/user-attachments/assets/7e6f32b6-37f4-4878-b9d3-eec4e2f4a485" />
