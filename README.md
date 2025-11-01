@@ -1,4 +1,4 @@
-<img width="736" height="624" alt="image" src="https://github.com/user-attachments/assets/782fa761-9057-412d-abd3-3b597cc5c904" />![](https://komarev.com/ghpvc/?username=your-github-username&color=e79385&label=NINJAS)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=e79385&label=NINJAS)
 
 
 
