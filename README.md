@@ -1,8 +1,9 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=e79385&label=NINJAS)
+<img width="736" height="624" alt="image" src="https://github.com/user-attachments/assets/782fa761-9057-412d-abd3-3b597cc5c904" />![](https://komarev.com/ghpvc/?username=your-github-username&color=e79385&label=NINJAS)
 
 
 
-me and my dad 
+me and my dad ↴
+
 
 <img width="250" height="624" alt="image" src="https://github.com/user-attachments/assets/234fa942-7b71-4a6b-ae50-80b6afdd83b8" />
 
