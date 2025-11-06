@@ -4,8 +4,10 @@
 
 me and my dad ↴
 
+<img width="267" height="32" alt="image" src="https://github.com/user-attachments/assets/f5d4b5f9-d9d5-4280-9db4-00ab18dedf3f" />
+SCREENSHOT OF SHAME
 
-<img width="250" height="624" alt="image" src="https://github.com/user-attachments/assets/234fa942-7b71-4a6b-ae50-80b6afdd83b8" />
+ ㅤ<img width="250" height="624" alt="image" src="https://github.com/user-attachments/assets/234fa942-7b71-4a6b-ae50-80b6afdd83b8" />
 
 <img width="250" height="150" alt="image" src="https://github.com/user-attachments/assets/af0e54ac-9b52-4954-864c-5610897bbbf8" />
 
