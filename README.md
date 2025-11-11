@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=e79385&label=NINJAS)
+![](https://komarev.com/ghpvc/?username=your-github-username&color=e79385&label=BOUNTY)
 
 
 
