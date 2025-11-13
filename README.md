@@ -37,4 +37,4 @@ dni list:
 ^^^(these people are so awesome sauce)
 
 
-(( SN: hey guys lets tone down the NSFW jokes about me haha it makes me uncomfy alot but i wont tell you guys to stop, just keep it limited. thanks
+(( be cautious of ur jokes cs some of u guys pmo so much lmao
