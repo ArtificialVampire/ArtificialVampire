@@ -37,4 +37,4 @@ dni list:
 ^^^(these people are so awesome sauce)
 
 
-(( be cautious of ur jokes cs some of u guys pmo so much lmao
+(( SN for those reading: be cautious of ur jokes cs some of u guys pmo so much lmao
