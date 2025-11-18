@@ -48,5 +48,7 @@ dni list:
 <img width="650" height="423" alt="image" src="https://github.com/user-attachments/assets/80e555f5-2e3d-4477-80a0-9055c0002fbf" />
 <img width="635" height="527" alt="image" src="https://github.com/user-attachments/assets/f06908e1-3eaa-4e90-96d0-22fbe7459753" />
 <img width="650" height="538" alt="Screenshot 2025-11-18 222253" src="https://github.com/user-attachments/assets/791bea04-9a5f-426c-aeb3-b22fc01317d1" />
+
+
 Player base was below 180 before it got fixed LMAOOOO
 
