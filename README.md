@@ -23,7 +23,7 @@ dni list:
 1. @ $\textsf{{\color[rgb]{0.0, 0.0, 0.0}I}{\color[rgb]{0.1, 0.0, 0.0}v}{\color[rgb]{0.12, 0.0, 0.0}a}{\color[rgb]{0.22, 0.0, 0.0}n}{\color[rgb]{0.33, 0.0, 0.0}g}{\color[rgb]{0.4, 0.0, 0.0}a}{\color[rgb]{0.5, 0.0, 0.0}z}{\color[rgb]{0.6, 0.0, 0.0}e}}$
 2. @bIickys
 3. @MORIMENS
-4. @FaithAmetyst
+4. @ $\color{#582cbd}{\textsf{𝐅𝐚𝐢𝐭𝐡𝐀𝐦𝐞𝐭𝐲𝐬𝐭}}$
 5. @crimesyndicates
 6. @yi-hyuk
 7. $\textcolor{hsl(0,100%,50%)}{\textsf{𝒮𝒽𝑒𝓇𝒾𝒻𝒻}}$
