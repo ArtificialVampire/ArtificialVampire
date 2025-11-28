@@ -1,5 +1,5 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&color=e79385&label=FOOLS)
-
+![](https://komarev.com/ghpvc/?username=your-github-username&color=9a182f&label=MASKED)
+[![Hits](https://hits.sh/github.com/ArtificialVampire/hits.svg?style=plastic&label=FOOLS&extraCount=776&color=bc1d2f&labelColor=db576f&logo=b)](https://hits.sh/github.com/ArtificialVampire/hits/)
 
 
 me and my dad ↴
@@ -13,7 +13,7 @@ SCREENSHOT OF SHAME
 
 <img width="450" height="250" alt="image" src="https://github.com/user-attachments/assets/3689a1b2-b04d-4a4f-8b8d-88921288597e" />
 <img width="450" height="250" alt="image" src="https://github.com/user-attachments/assets/4181229f-865e-4ad4-9dab-fb2205ec2f89" />
-<img width="450" height="250" alt="image" src="https://github.com/user-attachments/assets/da4b8fb5-f99a-45f5-8948-332dbbddfc01" />
+
 
 
 
