@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=9a182f&label=MASKED)
 [![Hits](https://hits.sh/github.com/ArtificialVampire/hits.svg?style=plastic&label=FOOLS&extraCount=776&color=bc1d2f&labelColor=db576f&logo=b)](https://hits.sh/github.com/ArtificialVampire/hits/)
-
+銀河には「ナヌーク」っていう独りよがりな星神がいるの。そいつ、自分がいなかったら銀河は「壊滅」には向かわないと思ってるんだって！…面白くない？わかった。「存護」バージョンもあるけど、聞く？wwwwwwww
 
 me and my dad ↴
 
