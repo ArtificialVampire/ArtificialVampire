@@ -3,8 +3,9 @@
 ⠀  ⠀ ⠀⠀  ⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀⠀  ⠀ ⠀⠀  ⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ ⠀⠀  ⠀ 
 <img width="150" height="67" alt="Screenshot 2025-11-19 183338" src="https://github.com/user-attachments/assets/f42b5eae-5cbf-4171-baf0-5f623660f363" />
 <img width="250" height="55" alt="Screenshot 2025-11-19 183010" src="https://github.com/user-attachments/assets/a8435f98-f9a3-4fc1-8230-45e2656d98cb" />
-<img width="267" height="32" alt="image" src="https://github.com/user-attachments/assets/d9276645-2b05-43f9-bf95-f21943684e5e" />
 <img width="190" height="65" alt="Screenshot 2025-11-13 200502" src="https://github.com/user-attachments/assets/465e831e-86de-44f2-a303-b52d617e0e96" />
 <img width="267" height="32" alt="Screenshot 2025-11-06 203811" src="https://github.com/user-attachments/assets/eed98fc6-4582-4f42-8902-83737d6a5205" />
 <img width="217" height="90" alt="Screenshot 2025-10-31 231141" src="https://github.com/user-attachments/assets/ab547fb1-57bc-4b42-8c4b-d18960c5f241" />
+<img width="461" height="108" alt="Screenshot 2025-11-15 010355" src="https://github.com/user-attachments/assets/ad12a1bc-eda7-42f1-94b1-3f0c28040de9" />
+
 my dad is the unfunniest person on belobog holy shit i might aswell get him banned on edo star
