@@ -9,4 +9,4 @@
 
 
 $\color{#bc1d2f}{\textsf{❝ What is this fattie doing here ? ❞ --- > CLICK IT CLICK IT CLICK IT CLICK IT!!!!}}$ 
- [<img width="100" height="50" alt="287c726e03b14919e2ebb15534252bb0-removebg-preview" src="https://github.com/user-attachments/assets/08e3df7b-748e-4bf0-8d17-fd023db266ee" />](https://artificialvampire.atabook.org/)
+ [<img width="50" height="100" alt="287c726e03b14919e2ebb15534252bb0-removebg-preview" src="https://github.com/user-attachments/assets/08e3df7b-748e-4bf0-8d17-fd023db266ee" />](https://artificialvampire.atabook.org/)
