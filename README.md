@@ -9,7 +9,7 @@
 
 ##
 $\color{#F2EC63}{\textsf{❝ HE IS SO EVIL!!!!!!!!!! ❞ ➝ CLICK IT CLICK IT CLICK IT CLICK IT!!!!}}$ 
- [<img width="200" height="110" alt="Untitled1_20260129172216" src="https://github.com/user-attachments/assets/5d3ffcae-e650-4d1f-8eb8-bf7e95d4597e" />
+ [<img width="240" height="110" alt="Untitled1_20260129174440" src="https://github.com/user-attachments/assets/4605c440-6eaf-4c12-bd1e-2ebc1c19e243" />
 ](https://artificialvampire.atabook.org/)
 
 
