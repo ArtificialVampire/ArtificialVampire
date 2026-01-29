@@ -8,8 +8,8 @@
 
 
 ##
-$\color{#629cc0}{\textsf{❝ HE IS SO EVIL!!!!!!!!!! ❞ ➝ CLICK IT CLICK IT CLICK IT CLICK IT!!!!}}$ 
- [<img width="190" height="50" alt="2a0bca797583366968bccb1fb34f64f8-removebg-preview" src="https://github.com/user-attachments/assets/cfabd7b7-8581-4840-90ef-a83832d104ed" />
+$\color{#F2EC63}{\textsf{❝ HE IS SO EVIL!!!!!!!!!! ❞ ➝ CLICK IT CLICK IT CLICK IT CLICK IT!!!!}}$ 
+ [<img width="200" height="110" alt="Untitled1_20260129172216" src="https://github.com/user-attachments/assets/5d3ffcae-e650-4d1f-8eb8-bf7e95d4597e" />
 ](https://artificialvampire.atabook.org/)
 
 
