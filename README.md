@@ -7,12 +7,4 @@
 
 
 
-##
-
- 
-
-
-
-<img width="381" height="260" alt="image" src="https://github.com/user-attachments/assets/055f9fa0-8ac8-455f-9141-0732a04178bc" />                             <img width="423" height="260" alt="Screenshot 2026-03-20 170338" src="https://github.com/user-attachments/assets/6cf18a46-a03c-4395-9ab0-3587e39fa243" />
-
  
